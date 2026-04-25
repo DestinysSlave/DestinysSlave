@@ -1,4 +1,4 @@
-# " my thoughts will follow you into your dreams "
+# " if you really have any free will, hold on to it. reach the ending of your story in your own way. i like you for this. "
 </p>
 <br>Heavy WIP <33 ! Come back next time,..<br>𝜗𝜚 About me<br>⟢ BYI !<br>⟢ DNI !<br>⟢ MISC !!
 
